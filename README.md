@@ -1,5 +1,6 @@
 ### Hi there 👋
-
+大家好，我是计算2113陈炜捷，来自福建福州。总的来说，我对大学生活还是比较满意的，想学就学一学，不想学就摆烂，比起中学少了许多束缚，而且JMU里面个个都是人才，说话又好听，让我感到十分温暖。
+呼，但是现在大三了，毕业后又该何去何从呢，虽然躺平很舒服，但还是得为自己的未来考虑考虑了。兜兜转转，匆匆忙忙，或许人生本该这样，一起加油吧各位！
 <!--
 **indexhtmlhtml/indexhtmlhtml** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
